@@ -2,7 +2,7 @@
 
 Privacy Policy
 
-We take your privacy very seriously. This policy describes how we treat and protect information about you, including personal information, when you use our app "ቃለስብሐት". By using our app, you agree to the terms of this Privacy Policy.
+We take your privacy very seriously. This policy describes how we treat and protect information about you, including personal information, when you use our app "ድርሳነ ሚካኤል". By using our app, you agree to the terms of this Privacy Policy.
 
 Collection of Information
 
